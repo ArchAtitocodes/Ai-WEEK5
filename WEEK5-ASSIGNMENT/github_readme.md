@@ -500,8 +500,8 @@ November 2025
 
 For questions or issues:
 - Create an issue in GitHub repository
-- Contact: [your-email@example.com]
-- PLP Community forum: [link to community]
+- Contact: [stephenodhiambo008@gmail.com , biwottjackline72@gmail.com]
+- PLP Community 
 
 ---
 
